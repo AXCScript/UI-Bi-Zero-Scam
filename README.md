@@ -1,2 +1,1 @@
-# UI-Bi-Zero-Scam
-Scammmm
+# https://discord.gg/6J7VUABGEr
